@@ -5,5 +5,6 @@
 - Ben Teo: The Shadow of Kiyoshi (Avatar fans)
 - Emma Howell: The Handmaid's Tale (dystopian sci-fi)
 - Lily Hislop: A Wizard's Guide to Defensive Baking by T. Kingfisher (fantasy)
+- Jacob Fredette-Roman: Hitchhiker's Guide to the Galaxy (Sci-fi)
 
 - Maddie Topf: Giovanni's Room by James Baldwin
