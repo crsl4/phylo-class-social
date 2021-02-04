@@ -12,4 +12,5 @@
 - Maddie Topf: Giovanni's Room by James Baldwin
 - Phylogenetics by Mike Steel and Charles Semple
 - Beth Moore: A Breath of Snow and Ashes (Outlander series) Diana C.
+- Jacob Fredette-Roman: Hitchhiker's Guide to the Galaxy (Sci-fi)
 
