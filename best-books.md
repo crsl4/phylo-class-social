@@ -1,5 +1,5 @@
 # List of best books read in 2021 by Botany 563 Spring 2022 class
-
+Nikita: Dune by Frank Herbert
 
 
 
@@ -15,7 +15,7 @@
 - Roberto Carrera Martinez: Taino: A Novel by Jose Barreiro
 - Roberto Carrera Martinez: Taino: A Novel by Jose Barreiro
 - Max B: The Broken Heavens by Kameron Hurley
-- "A Wizards Guide to Defensive Baking" 
+- "A Wizards Guide to Defensive Baking"
 - Lily Hislop: A Wizard's Guide to Defensive Baking by T. Kingfisher (fantasy)
 - What is this "Book" you speak of?
 - Maddie Topf: Giovanni's Room by James Baldwin
@@ -27,4 +27,3 @@
 - Angelise Puls: Fun Home by Alison Bechdel (graphic novel autobiography)
 - Soyoung: Harry potter?
 - Carl Branch: Three Men in a Boat
-
