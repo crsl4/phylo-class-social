@@ -28,4 +28,4 @@
 - Angelise Puls: Fun Home by Alison Bechdel (graphic novel autobiography)
 - Soyoung: Harry potter?
 - Carl Branch: Three Men in a Boat
--Angel - Ready Player One by Ernest Cline
+- Angel - Ready Player One by Ernest Cline
