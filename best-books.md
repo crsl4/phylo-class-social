@@ -9,6 +9,7 @@
 - Nicole Mitidieri: Tree Thinking by David Baum (mystery, true crime)
 - Joye Zhou: Birds of the World
 - Conor: Atonement by Ian McEwan
+- Angel: Ready Player One by Ernest Cline
 
 # List of best books read in 2020 by Botany 563 Spring 2021 class
 
