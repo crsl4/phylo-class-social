@@ -42,4 +42,4 @@
 - Angelise Puls: Fun Home by Alison Bechdel (graphic novel autobiography)
 - Soyoung: Harry potter?
 - Carl Branch: Three Men in a Boat
-- Wanting Wei: Kitchen confidential
+- Quaid Handy: From Strength to Strength
