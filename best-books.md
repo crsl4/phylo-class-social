@@ -38,3 +38,6 @@
 - Soyoung: Harry potter?
 - Carl Branch: Three Men in a Boat
 - Wanting Wei: Kitchen confidential
+
+# List of best books read in 2022 by Botany 563 Spring 2023 class
+- Kaitlyn Abshire: Shrek! by William Steig
