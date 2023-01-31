@@ -1,6 +1,7 @@
-# List of best books read in 2022 by Botany 563 Spring 2022 class
+# List of best books read in 2022 by Botany 563 Spring 2023 class
 
 -Ben Klementz: Cujo by Stephen King
+- Kaitlyn Abshire: Shrek! by William Steig
 
 # List of best books read in 2021 by Botany 563 Spring 2022 class
 
@@ -42,6 +43,3 @@
 - Soyoung: Harry potter?
 - Carl Branch: Three Men in a Boat
 - Wanting Wei: Kitchen confidential
-
-# List of best books read in 2022 by Botany 563 Spring 2023 class
-- Kaitlyn Abshire: Shrek! by William Steig
