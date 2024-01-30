@@ -1,6 +1,6 @@
 # List of best books read in 2023 by Botany 563 Spring 2024 class
 
-- -Laurel Sutherland
+- -Laurel Sutherland: The Seven Husbands of Evelyn Hugo
 - Sarah: Les Miserables by Victor Hugo
 - Jackie Lemaire: Lessons in Chemistry
 - Song of Achilles by Madeline Miiller
