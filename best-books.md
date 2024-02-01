@@ -1,5 +1,4 @@
 # List of best books read in 2023 by Botany 563 Spring 2024 class
-
 - -Laurel Sutherland: The Seven Husbands of Evelyn Hugo
 - Sarah: Les Miserables by Victor Hugo
 - Jackie Lemaire: Lessons in Chemistry
@@ -9,9 +8,6 @@
 - Ben Haefner: The Lord of the Rings
 - Amish: The oath of Vayuputras 
 - Zach Farrand: Tales from the Ant World
-
-
-
 
 
 # List of best books read in 2022 by Botany 563 Spring 2023 class
