@@ -1,5 +1,9 @@
-# List of best books read in 2024 by Botany 563 Spring 2025 class
+<<<<<<< HEAD
+# List of best books read in 2025 by Botany 563 Spring 2024 class
+- Cecelia: the priory of the orange tree 
 - Shuqi: Braiding Sweetgrass
+
+>>>>>>> 8bbb38520a37895b5c20344a79bb745d5de58360
 
 # List of best books read in 2023 by Botany 563 Spring 2024 class
 - Roberto: The famine plot by Tim Pat Coogan
