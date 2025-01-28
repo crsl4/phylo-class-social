@@ -4,7 +4,7 @@
 - Lauren: The Handmaids Tale
 - Ty: Crime and Punishment, Dostoevsky
 - Aviva: I am reading Wicked right now
-Michael Hensley: Pillars of the Earth, Ken Follett
+- Michael Hensley: Pillars of the Earth, Ken Follett
 
 
 
