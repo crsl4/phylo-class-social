@@ -5,6 +5,7 @@
 - Lauren: The Handmaids Tale
 - Ty: Crime and Punishment, Dostoevsky
 - Aviva: I am reading Wicked right now
+- Lindsay: Salt to the sea
 
 
 # List of best books read in 2023 by Botany 563 Spring 2024 class
