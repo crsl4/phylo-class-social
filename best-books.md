@@ -1,7 +1,8 @@
-# List of best books read in 2024 by Botany 563 Spring 2025 class
+
+# List of best books read in 2025 by Botany 563 Spring 2024 class
 - Melette: Never Whistle at Night
 - Cecelia: the priory of the orange tree
-- Aharon: Heichaltzu: On Ahavas Yisrael by Rabbi Sholom Dov Ber Schneersohn 
+- Aharon: Heichaltzu: On Ahavas Yisrael by Rabbi Sholom Dov Ber Schneersohn
 - Lauren: The Handmaids Tale
 - Ty: Crime and Punishment, Dostoevsky
 - Aviva: I am reading Wicked right now
@@ -11,7 +12,8 @@
 
 
 # List of best books read in 2023 by Botany 563 Spring 2024 class
-- Roberto: The famine plot by Tim Pat Coogan
+
+-Roberto: The famine plot by Tim Pat Coogan
 - -Laurel Sutherland
 - Sarah: Les Miserables by Victor Hugo
 - Jackie Lemaire: Lessons in Chemistry
@@ -72,9 +74,6 @@
 All the bright places- Jennifer Niven
 - Aidyn Kehrli: The Giver by Lois Lowry 
 - Madelyn Garbo : The Silent Patient
-
-
-
 
 
 
