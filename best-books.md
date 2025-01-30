@@ -6,7 +6,10 @@
 - Lauren: The Handmaids Tale
 - Ty: Crime and Punishment, Dostoevsky
 - Aviva: I am reading Wicked right now
+- Shuqi: Braiding Sweetgrass
+- Sydney: The Midnight Library by Matt Haig
 - Alan: Border City by Shen Congwen
+
 
 # List of best books read in 2023 by Botany 563 Spring 2024 class
 
