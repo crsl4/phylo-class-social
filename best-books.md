@@ -5,7 +5,11 @@
 - Lauren: The Handmaids Tale
 - Ty: Crime and Punishment, Dostoevsky
 - Aviva: I am reading Wicked right now
+<<<<<<< HEAD
 - Lindsay: Salt to the sea
+=======
+- Alan: Border City by Shen Congwen
+>>>>>>> fefba154a4c0f4e3385d8c5f5b354f314f2cd633
 
 
 # List of best books read in 2023 by Botany 563 Spring 2024 class
