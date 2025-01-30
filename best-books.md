@@ -1,6 +1,3 @@
-# List of best books read in 2024 by Botany 563 Spring 2025 class
-- Gannon: The Covenant of Water by Abraham Verghese
-
 # List of best books read in 2023 by Botany 563 Spring 2024 class
 - Roberto: The famine plot by Tim Pat Coogan
 - -Laurel Sutherland
@@ -15,7 +12,8 @@
 - Zach Farrand: Tales from the Ant World
 - Jamie : The court of thorns and roses 
 - Kaiju Preservation Society by John Scalzi
--Thalia: The Bluest Eye, Toni Morrison
+- Thalia: The Bluest Eye, Toni Morrison
+- Gannon : The covenant of water, Abraham 
 
 
 
