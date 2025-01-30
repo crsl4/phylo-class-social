@@ -5,7 +5,11 @@
 - Lauren: The Handmaids Tale
 - Ty: Crime and Punishment, Dostoevsky
 - Aviva: I am reading Wicked right now
+<<<<<<< HEAD
 - Michael Hensley: Pillars of the Earth, Ken Follett
+=======
+- Alan: Border City by Shen Congwen
+>>>>>>> e2333701ebc0df59071170ea09cfe463f68ee948
 
 
 
