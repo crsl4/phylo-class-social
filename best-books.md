@@ -5,13 +5,8 @@
 - Lauren: The Handmaids Tale
 - Ty: Crime and Punishment, Dostoevsky
 - Aviva: I am reading Wicked right now
-<<<<<<< HEAD
-- Michael Hensley: Pillars of the Earth, Ken Follett
-=======
+- Sydney: The Midnight Library by Matt Haig
 - Alan: Border City by Shen Congwen
->>>>>>> e2333701ebc0df59071170ea09cfe463f68ee948
-
-
 
 # List of best books read in 2023 by Botany 563 Spring 2024 class
 - Roberto: The famine plot by Tim Pat Coogan
@@ -28,8 +23,6 @@
 - Jamie : The court of thorns and roses 
 - Kaiju Preservation Society by John Scalzi
 -Thalia: The Bluest Eye, Toni Morrison
-
-
 
 
 # List of best books read in 2022 by Botany 563 Spring 2023 class
