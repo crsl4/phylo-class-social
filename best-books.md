@@ -23,7 +23,8 @@
 - Zach Farrand: Tales from the Ant World
 - Jamie : The court of thorns and roses 
 - Kaiju Preservation Society by John Scalzi
--Thalia: The Bluest Eye, Toni Morrison
+- Thalia: The Bluest Eye, Toni Morrison
+- Gannon : The covenant of water, Abraham 
 
 
 # List of best books read in 2022 by Botany 563 Spring 2023 class
