@@ -30,7 +30,7 @@
 - Jamie : The court of thorns and roses 
 - Kaiju Preservation Society by John Scalzi
 -Thalia: The Bluest Eye, Toni Morrison
-
+- Michael: Ein Sommer in Heidlberg
 
 # List of best books read in 2022 by Botany 563 Spring 2023 class
 - Hongyi Huang: The Lord of the Rings
