@@ -7,6 +7,7 @@
 - Ty: Crime and Punishment, Dostoevsky
 - Aviva: I am reading Wicked right now
 - Alan: Border City by Shen Congwen
+- Kirsty 3 bodies
 
 # List of best books read in 2023 by Botany 563 Spring 2024 class
 
