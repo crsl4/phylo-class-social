@@ -1,3 +1,4 @@
+- Ari: The Amazing Adventures of Kavalier and Clay
 
 - Nathan: The Greatest Estate Developer (a webtoon)
 
