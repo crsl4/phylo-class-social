@@ -1,3 +1,4 @@
+- Maddie: my grandmother asked me to tell you she's sorry
 - Ari: The Amazing Adventures of Kavalier and Clay
 
 - Nathan: The Greatest Estate Developer (a webtoon)
