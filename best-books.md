@@ -1,4 +1,5 @@
 - Ari: The Amazing Adventures of Kavalier and Clay
+- Sabah: fahrenheit 451 by Ray Bradbury
 
 # List of best books read in 2025 by Botany 563 Spring 2024 class
 - Melette: Never Whistle at Night
@@ -8,8 +9,6 @@
 - Ty: Crime and Punishment, Dostoevsky
 - Aviva: I am reading Wicked right now
 - Alan: Border City by Shen Congwen
-- Sabah: fahrenheit 451 by Ray Bradbury
-
 
 # List of best books read in 2023 by Botany 563 Spring 2024 class
 
