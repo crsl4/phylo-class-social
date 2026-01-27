@@ -4,7 +4,7 @@
 - Ari: The Amazing Adventures of Kavalier and Clay
 - Maddie: my grandmother asked me to tell you she's sorry
 - Prakriti: The Rookie
-
+- Swathi: A discovery of witches by Deborah Harkness
 
 # List of best books read in 2025 by Botany 563 Spring 2024 class
 - Melette: Never Whistle at Night
